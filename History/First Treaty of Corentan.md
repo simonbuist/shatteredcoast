@@ -1,0 +1,1 @@
+The First Treaty of Corentan was signed in 275 [[AS]] by [[Farainne]], [[Arrusa]], and various other nations to form the [[Western League]] in response to the [[Daira]] expanding its borders into western [[Dennar]]. It was signed in [[Corentan]], the capital of [[Farainne]], hence its name.

@@ -1,0 +1,2 @@
+#region #Marral
+Marral is the continent to the south of [[Dennar]], separated by the [[Arietan Sea]]. Marral is hotter than [[Dennar]], and inhabited by a wider variety of [[Humanoids|humanoid species]]. Most trade with Marral is conducted with the [[Dragonborn]] living along Marral's northern coast.

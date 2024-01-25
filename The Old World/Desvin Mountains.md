@@ -1,0 +1,2 @@
+#region #Dennar 
+The Desvin Mountains are a geological barrier running north-south along western [[Dennar]], sparsely inhabited by [[Gnomes]]. In the past, the [[Gnommo Republics]] lived on both sides of the Desvin Mountain, but over time all of their holdings to the east of the range were lost in war to [[Daira]].

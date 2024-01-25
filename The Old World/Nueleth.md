@@ -1,0 +1,2 @@
+#country #Dennar 
+Nueleth is the largest of the [[Elvish Free Kingdoms]], located on the southern peninsula of central Dennar. Nueleth borders the [[Alkainon Empire]], and resultingly has a powerful military to protect itself and its allies. Nuelethi cities are mostly located along the coast of the [[Arietan Sea]] to to its rocky inland, but its capital [[Nuelor]] lies up the [[Nuelor River]] in a protected valley surrouned by large hills.

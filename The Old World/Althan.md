@@ -1,0 +1,3 @@
+#region #Dennar
+Althan is the northeast region of [[Dennar]], primarily consisting of marshes and lakes. Due to its less-inviting terrain, Althan is significantly less populated than other regions of [[Dennar]], although migration to the area did occur during the establishment of the [[Alkainon Empire]] by refugees.
+Althan is currently the site of most [[Darktide]] conflict, as states of the [[Alkainon Empire]] attempt to prevent [[Deepfolk]] from establishing territory near their borders.

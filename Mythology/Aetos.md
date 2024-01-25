@@ -1,0 +1,2 @@
+#mythology 
+Aetos was one of the three [[Primordial Titans]] of [[Dennar|Dellan]] mythology, embodying storms. She is referred to as feminine within legends. During the [[End of Chaos]], she was killed by [[Martalos]] and her body was shattered across [[Gilith]], becoming the mineral [[Aetshard]].

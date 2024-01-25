@@ -1,0 +1,1 @@
+The Treaties of Mending were the series of agreements that ending the wars of the [[Elven Invasion]], signed between major nations of the [[Gnomes]], [[Humans]], and [[Elves]]. The Treaties recognized the new nations formed by the elves, contingent upon the [[New World Elves]] ceasing their wars to expand their territories.

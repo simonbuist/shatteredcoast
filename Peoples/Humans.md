@@ -1,0 +1,2 @@
+#species 
+Humans are the most populous species of [[Dennar]], and the original occupants of its south. Humans are typically seen as social and somewhat frantic, possibly as a result of their short lifespans. This also may explain their particular zeal for religion. Human merchants can be found in every port in [[Dennar]].

@@ -1,0 +1,2 @@
+#species 
+Orcs are the rarest and least well-known of the [[Deepfolk]] species. Hailing from the [[Underdark]], what little is known of them indicates they are a deeply hierarchical society oriented around their military, though careful scholars will tell you that impression is likely due to only having observed their military.

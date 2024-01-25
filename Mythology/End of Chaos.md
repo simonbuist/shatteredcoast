@@ -1,0 +1,2 @@
+#mythology 
+Within [[Dennar|Dellan]] mythology, the End of Chaos is the period in which the [[Holy Court]] arrived on [[Gilith]] and defeated the [[Primordial Titans]], calming the earth so that life could exist.

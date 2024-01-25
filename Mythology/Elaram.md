@@ -1,0 +1,2 @@
+#mythology
+Elaram is one of the three [[Primordial Titans]] of [[Dennar|Dellan]] mythology, embodying the oceans. He is understood as having masculine aspects. According to legend, after [[Martalos]] killed his sister [[Aetos]], he retreated to [[Elandir]] and wept, with his tears forming [[Elaram's Lament]], the ocean between [[Elandir]] and [[Dennar]]. He is the only living [[Primordial Titans|Titan]].

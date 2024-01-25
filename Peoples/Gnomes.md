@@ -1,0 +1,3 @@
+#species 
+The gnomes are a species of [[Humanoids]] native to northwest [[Dennar]]. Believed to have originated on the island of [[Gnimscal]], gnomes have lived in cities along the northern coast of [[Dennar]] since before the historical record. Gnomes organize their society democratically and peacefully when possibly, with the vast majority living within the [[Gnommo Republics]], an allied group of nations north of the [[Western League]].
+Gnomes are famed for their artificery, invented and trading fascinating objects powered by 

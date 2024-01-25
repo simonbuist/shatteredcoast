@@ -1,0 +1,2 @@
+#city #Dennar 
+Nuelor is the capital of [[Nueleth]], located on the [[Nuelor River]]. It is a large city, protected on all sides by large hills and small mountains. Nuelor is most famous for its military academies and magical universities.

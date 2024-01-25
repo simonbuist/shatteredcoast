@@ -1,0 +1,2 @@
+#species 
+Deepfolk refers to the [[Goblins]], [[Orcs]], and [[Drow]]. Until the [[Darktide]], resource scarcity led to frequent conflicts among the Deepfolk, but once war broke out with the [[Dwarves]], the Deepfolk allied themselves and expanded their borders into the [[Drakesback]], significantly reducing the need for and appeal of internal conflict. More recently, the [[Deepfolk]] have begun to conquer the [[Eldglade]] and [[Althan]].

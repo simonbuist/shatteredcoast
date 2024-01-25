@@ -1,0 +1,2 @@
+#species 
+New World elves are the most common subspecies of [[Elves]] within [[Dennar]], descended from the [[Elves]] that crossed [[Elaram's Lament]] following the [[Shattering of Elandir]]. New World elves are thought to be most similar to the ancient [[Elves]] of [[Elandir]], with long traditions of scholarship and arcane magic. New World elves were some of the most passionate explorers, desiring to rediscover their homeland. They are often particularly tall (6-7 feet) and have shimmering metallic hair.

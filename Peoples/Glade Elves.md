@@ -1,0 +1,2 @@
+#species
+Glade elves are one of the four subspecies of [[Elves]]. They inhabit the [[Eldglade]] and are known to have a particularly strong connection to the [[Fey]]. Glade Elves are shorter than other elves, typically ranging from 4-5.5 feet. Their hair ranges from deep pine green to brilliant aspen gold.

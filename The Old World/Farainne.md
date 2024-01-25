@@ -1,0 +1,2 @@
+#country #Dennar
+Farainne is one of the oldest and most powerful kingdoms within the [[Western League]] and all of [[Dennar]]. It's a deeply traditional and feudal land, with a long history of noble families and their orders of knights. Within more recent history, the influence of Farainne has somewhat waned as [[Arrusa]] grew in prominence, but [[Arrusa]] still depends on the country for protection from the threat of [[Daira]].

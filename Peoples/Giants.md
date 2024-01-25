@@ -1,0 +1,2 @@
+#species 
+Giants are the massive and elusive residents of the furthest northen reaches of [[Dennar]]. It is suspected that some populations live in northern [[Esden]] as well. There are a variety of subspecies of giants, including frost and fire giants who live in their remote citadels, and nomadic hill and storm giants with whom slightly more contact is had.

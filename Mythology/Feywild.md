@@ -1,0 +1,2 @@
+#region
+The Feywild is another plane closely linked to [[Gilith]] filled with dense, magical forests. Similar to the [[Underdark]], transit between them is only possible in a small number of locations. However, different from the [[Underdark]], [[Fey]] portals are required to cross between them. The [[Fey]] inhabit the Feywild. Some adventurers claim to have entered the Feywild, but their stories are received skeptically. Some scholars believe the Feywild might not even exist.

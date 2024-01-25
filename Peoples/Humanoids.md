@@ -1,0 +1,2 @@
+#species 
+Humanoid is a designation of species generally accepted to be conscious and sentient. For a species to be widely recognized as humanoid, they are required to display language, society, and technology.

@@ -1,0 +1,2 @@
+#mythology 
+According to [[Dennar|Dellan]] mythology, the Primordial Titans were the three ancient gods who inhabited [[Gilith]] before the arrivial of the [[Holy Court]]. They were [[Elaram]], the chaos of oceans, [[Aetos]], the chaos of storms, and [[Nozadon]], the chaos of volcanoes. Under their control, [[Gilith]] was a chaos of elemental powers unsuitable for life. In order to bring life to [[Gilith]], the [[Holy Court]], let by [[Martalos]], defeated the three Titans and brought peace to [[Gilith]].

@@ -1,0 +1,2 @@
+#mythology
+Nozadon is one of the three [[Primordial Titans]] in [[Dennar|Dellan]] mythology, and reigned over the chaos of volcanoes and fire. They took the form of a massive dragon. They were the first killed in the [[End of Chaos]] and their corpse became the [[Drakesback]]. After Nozadon was killed, [[Elaram]] urged his sister [[Aetos]] to flee the [[Holy Court]], but she instead confronted them and was also killed.

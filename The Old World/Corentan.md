@@ -1,0 +1,2 @@
+#city #Dennar
+Corentan is the largest city in west [[Dennar]], capital of [[Farainne]] and the founding location of the [[Western League]]. Corentan is located near the coast of [[Elaram's Lament]], on a wide plain, and is surrounded by countless farming villages. Corentan is also the base and training camp of Farainne's feared cavalry, and Faraich horses are widely desired by officers across [[Dennar]].

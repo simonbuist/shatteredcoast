@@ -1,0 +1,2 @@
+#country #Darovar
+Aml Lodum was the capital of the [[Crown]], famed for being the only known source of [[Mithril]]. It is located far northeast of [[Dennar]], within a volcano separated from the rest of the [[Drakesback]]. The Hall of the Ancestors is in Aml Lodum, an impossibly vast mausoleum where all Dwarves hope to be buried. The [[Doravar]] was begun in Aml Lodum, connecting it to all other holds along the [[Drakesback]].

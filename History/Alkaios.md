@@ -1,0 +1,1 @@
+Alkaios is a somewhat mythical human who founded the [[Alkainon Empire]]. He was born in 318 [[AS]], began his conquest in 344 [[AS]] and was killed in a battle with the combined forces of the [[Elvish Free Kingdoms]], the [[Western League]], and the [[Gnommo Republics]] in 374 [[AS]].

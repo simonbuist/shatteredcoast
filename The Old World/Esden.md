@@ -1,0 +1,2 @@
+#region #Esden
+Esden is the continent to the east of [[Dennar]] and [[Marral]], separated by the [[Drakesback]] except in its southwest, where great plains allow contact with [[Marral]]. Little is known of [[Esden|Esdish]] geography, save for the fact that the [[Drakesback]] splits it in two, with its northern half being frigid and sparsely populated, and its southern half fertile and full of life. Some small amount of trade exists with [[Marral]], but only for spices, jewelry, and other goods expensive enough to warrant the trek.

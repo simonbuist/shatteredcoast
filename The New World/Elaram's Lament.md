@@ -1,0 +1,1 @@
+Elaram's Lament is the massive ocean between [[Dennar]] and [[Elandir]]. It is known for its massive storms making for dangerous sailing. Elaram's Lament connects to the [[Arietan Sea]]. According to legend, it is the tears of the [[Primordial Titans|Primordial Titan]] [[Elaram]] after witnessing his sister [[Aetos]] slain by [[Martalos]].

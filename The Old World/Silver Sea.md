@@ -1,0 +1,2 @@
+#region #Dennar 
+The Silver Sea occupies the centre of [[Dennar]], surrounded by [[Elvish Free Kingdoms|Elvish kingdoms]] and the [[Western League]]. At the centre of the sea is a large island, the Elvish country of [[Isle-Nasir]]. To its south, the Silver Sea connect to the [[Arietan Sea]] through the [[Glimmering Straits]]. The Silver Sea is famous for the almost-metallic shine of its waters, and is a famous destination that attracts wealthy tourists. 

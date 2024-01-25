@@ -1,0 +1,2 @@
+#mythology 
+Aetshards are a rare mineral found throughout [[Gilith]]. It takes the form of a shimmering crystal. It is believed to be the shattered body of [[Aetos]], and contains magical power. Little else is known to [[Dennar|Dellans]], although many value it for its beauty. It has been extensively studied by [[Gnomes|Gnommish artificers]] and is used in their technologies. Certain other magicians have been able to harness its power, though the means by which they do it is a closely guarded secret.

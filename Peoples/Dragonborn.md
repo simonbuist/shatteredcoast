@@ -1,0 +1,2 @@
+#species 
+The dragonborn are a [[Humanoids|humanoid]] species native to [[Marral]], though some migrant communities exist within [[Dennar]]. They are formidable reptilian people, taller than most humans at 6-7.5 feet. Dragonborn come in a variety of subspecies, corresponding to the various types of dragons, and possess innate elemental powers according to their type.
