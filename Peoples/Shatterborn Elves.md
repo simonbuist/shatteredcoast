@@ -1,1 +1,6 @@
-more information to come :)
+One of the four subspecies of [[Elves]], the Shatterborn elves are a far less internally consistent group, associated by location rather than similarity. Shatterborn elves are the predominant residents of the [[Shattered Coast]] of [[Elandir]], descendants of survivors of the [[Shattering of Elandir]]. All known Shatterborn populations are significantly unique from the [[Old World Elves]] of [[Dennar]]. One commonality among most Shatterborn elves are there shorter lifespans as compared to [[Old World Elves]] and [[Glade Elves]], with the oldest met being no more than 200 years.
+
+Notable Shatterborn groups include:
+[[Saurian Shatterborn]], residents of the southern coast of region of the [[Narrows of Elfhome]]. The [[Saurian Shatterborn|Saurians]] live within the dense forests in a broad network of villages. 
+[[Triton Shatterborn]], who live within the [[Narrows of Elfhome]], in massive underwater cities. These elves breathe both water and air, and have often joined ships' crews as guides within the [[Shattered Coast]]. 
+[[Lithan Shatterborn]], the people native to the [[Isle of Stanhal]]. Little trade is carried out with these partially subterranean populations, and no [[Dennar|Dellans]] are known to have visited their cities.

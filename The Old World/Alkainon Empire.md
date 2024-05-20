@@ -1,2 +1,4 @@
 #country #Dennar
 The Alkainon Empire was founded by [[Alkaios]], a human conqueror in the 4th century [[AS]]. [[Alkaios]] conquered most of central [[Dennar]] before the [[Elvish Free Kingdoms]] allied themselves with the [[Western League]] and the [[Gnommo Republics]] and fell [[Alkaios]] in battle. After his death, his lands were divided among his 7 children. These countries were in near-constant border conflict with each other until the [[Darktide]] began threatening their borders, but are still very closely allied against external threats and all remain part of the Empire, with one monarch being elected to the position of Emperor every 7 years. The Empire is currently at war in [[Althan]] attempting to prevent [[Deepfolk]] territory from touching its borders.
+
+[[Alkannor]] used to be part, but broke away due to imperial taxes on trade with the [[Eldglade]].

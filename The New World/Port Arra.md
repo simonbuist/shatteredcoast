@@ -1,0 +1,3 @@
+Port Arra is the major [[Arrusa|Arrusan]] city within the [[Narrows of Elfhome]], established within a bay on the [[Isle of Stanhal]]. Port Arra is a smaller town of approximately 2000 residents. Most of inhabitants work for trading companies or local fisheries, but there is a reasonably large shipbuilding industry as well. Compared to [[New Linnar]], there is a significantly greater military presence in Port Arra, and [[Lithan Shatterborn|Lithan]] caravans can also occasionally be spotted within the town.
+
+Near Port Arra is the smaller town of [[Dogstail]], another [[Arrusa|Arrusan]] trading post.

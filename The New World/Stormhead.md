@@ -1,0 +1,4 @@
+#city #Elandir 
+Stormhead is a northwestern city on the [[Isle of Stanhal]], and is seen as the last port in the [[Narrows of Elfhome]] before it opens up into the broader [[Shattered Coast]]. While nominally a territory of [[Arrusa]], Stormhead functions mostly autonomously and has much fewer permament residents than [[Port Arra]] and [[Dogstail]]. Only 400 or so people live there permanently, while the rest of the population is sailors, traders, and adventurers who are just passing through.
+
+Stormhead is located at the base of rocky peninsula of [[Knifeshead]], and gets its name from the frequency of storms that come across from the [[Shattered Coast]].

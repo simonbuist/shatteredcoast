@@ -1,0 +1,2 @@
+The Saurian Shatterborn Elves are a subgroup of the [[Shatterborn Elves]], living in [[Farum Rex]], south of the [[Narrows of Elfhome]]. The Saurian Shatterborn gained their name from their resemblance and association with the dinosaurs of [[Farum Rex|their forests.]]
+Saurians, unlike many other elves, are covered in small scales, only noticeable from up close. Many of them are farmers or shipbuilders, and their cities tower among the oldest groves of [[Farum Rex]].

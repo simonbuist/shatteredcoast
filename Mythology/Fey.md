@@ -1,2 +1,0 @@
- #mythology 
-The Fey are the residents of the [[Feywild]], a plane parallel to [[Gilith]] only accessible through Fey portals. They are mysterious and inconsistent in form. Very little is known to [[Dennar|Dellans]] about them, although the [[Glade Elves]] are much more involved with them.

@@ -1,4 +1,4 @@
 #species 
 Elves are one of the most common [[Humanoids]] species in [[Dennar]]. It is believed that they originated in [[Elandir]].
-There are four subspecies of Elves: [[Drow]], [[New World Elves]], [[Shatterborn Elves]], and [[Glade Elves]].
+There are four subspecies of Elves: [[Drow]], [[Old World Elves]], [[Shatterborn Elves]], and [[Glade Elves]].
 All elves are commonly distinguished by their pointy ears, affinity for magic, and having a physique resembling that of a human that had been stretched from head to toe for a while. However, not all elves are taller than humans - there is wide height variety among the [[Shatterborn Elves]], and as a whole, [[Glade Elves]] are mostly comparable to [[Dwarves]] and [[Humans]] in height.

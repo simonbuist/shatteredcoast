@@ -1,2 +1,5 @@
 #region #Elandir
-information coming soon!
+Elandir is the westernmost known continent of [[Gilith]], located across [[Elaram's Lament]] from [[Dennar]] and [[Marral]]. Elandir is the historical homeland of the [[Elves]].
+Little is known of Elandi history before the [[Shattering of Elandir]], an apocalyptic event that led to massive [[Elves|Elven]] migration to [[Dennar]]. Until its rediscovery in 512 AS by [[Ayllath|Ayllathi]] sailors, life on Elandir was thought to have been completely wiped out by the [[Shattering of Elandir|Shattering]]. Since its rediscovery, explorers have met various groups of surviving [[Elves]], now referred to as [[Shatterborn Elves]]. These peoples are physically very distinct from their [[Old World Elves|Old World Elven]] counterparts, with the differences thought to be an effect of surviving the [[Shattering of Elandir|Shattering]].
+
+At the centre of Elandir lies the [[Shattered Coast]], a circular sea filled with islands and teeming with life. On land, the border surrounding the [[Shattered Coast|Coast]] is easily identifiable by the sheer cliff walls surrounding it. Discovered regions outside the [[Shattered Coast]] seem to be much less healed from the [[Shattering of Elandir|Shattering]]. The cause of this is unknown.

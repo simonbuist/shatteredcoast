@@ -1,7 +1,7 @@
 A dating system beginning with the [[Shattering of Elandir]]. AS is an acronym for *After Shattering*.
 
 Timeline (NOT EXHAUSTIVE):
-- 0 AS: The [[Shattering of Elandir]], a cataclysm that led to the depopulation of [[Elandir]] and the migration of the [[New World Elves]] to [[Dennar]].
+- 0 AS: The [[Shattering of Elandir]], a cataclysm that led to the depopulation of [[Elandir]] and the migration of the [[Old World Elves]] to [[Dennar]].
 - 227 AS: The [[Treaties of Mending]] are signed, recognizing new Elven countries in [[Dennar]].
 - 275 AS: The [[First Treaty of Corentan]] is signed, forming the [[Western League]] in order to stop the [[Daira]] from conquering western [[Dennar]].
 - 344 AS: [[Alkaios]] begins his conquest of central [[Dennar]], creating the [[Alkainon Empire]].

@@ -1,0 +1,2 @@
+#region #Elandir 
+Knifeshead is a peninsula on the southwest end of the [[Isle of Stanhal]], generally recognized as the western end of the [[Narrows of Elfhome]]. The coast of the peninsula is lined with sharp rock formations, making the landing of large boats virtually impossible. As such, there aren't any ports along Knifeshead, with the nearest town of [[Stormhead]] being the closest location to make anchor.
