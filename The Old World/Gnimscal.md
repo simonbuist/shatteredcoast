@@ -1,2 +1,0 @@
-#region 
-The supposed homeland of the [[Gnomes]], Gnimscal is as island far to the northwest of the [[Dennar|Dellan]] coast. Frequent trade does occur between mainland [[Dennar]] and Gnimscal, and the largest known veins of [[Aetshard]] are found on the island.

@@ -1,0 +1,2 @@
+#city #Feywild
+Winterseat is the major city of the [[Winter Court]], ruled by the [[Great Fairies|Great Fairy]] of the Court, the [[Lady of Deep Ice]]. It's a dense metropolis of libraries and palaces, most notable of which being the [[Archive of Winterseat]] and the [[Palace of Winterseat]].

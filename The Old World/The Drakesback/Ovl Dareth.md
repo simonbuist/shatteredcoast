@@ -1,0 +1,2 @@
+#country #Doravar
+Ovl Dareth, the Sapphire City, was a [[Dwarves|Dwarven]] hold at the end of the southwestern leg of the [[Drakesback]], connected to the rest of the [[Doravar]] through [[Ovl Thendr]]. Ovl Dareth was one of the few holds with a significant amount of trade with [[Dennar]], exporting significant amounts of glass and metal through its former port, [[Sazl Korthad]]. Ovl Dareth and the Sapphire [[Dwarves]] were destroyed during the [[Darktide]].

@@ -1,2 +1,2 @@
-#region 
-The Arietan Sea separates [[Dennar]] and [[Marral]], and has a number of islands within it. It is fairly calm and suitable to smaller ships, allowing plenty of low-risk trade across it.
+#region #Dennar
+The Arietan Sea separates [[Dennar]] and [[Marral]], and has a number of islands within it. It is fairly calm and suitable to smaller ships, allowing plenty of low-risk trade across it. Its eastern end is called [[Drakesmouth Bay]], notable for its frequent storms, and to the north it connects to the [[Silver Sea]] through the [[Glimmering Straits]].

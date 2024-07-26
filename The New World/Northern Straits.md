@@ -1,0 +1,2 @@
+#region #Elandir
+The Northern Straits connect [[Elaram's Lament]] to the [[Shattered Coast]] to the north of the [[Isle of Stanhal]]. It is not often used as a route due to its worse storms as compared to the [[Narrows of Elfhome]].

@@ -1,2 +1,0 @@
-#region 
-The Underdark is an expansive cave system throughout the world, inhabited by the [[Deepfolk]] ([[Drow]], [[Goblins]], and [[Orcs]]). Some rare caves stretch far enough from the surface to reach the Underdark, though none are known within [[Dennar]]. The [[Darktide]] was sparked by [[Dwarves]] mining a path deep enough to reach the Underdark.

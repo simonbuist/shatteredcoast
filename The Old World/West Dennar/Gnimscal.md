@@ -1,0 +1,2 @@
+#region 
+The supposed homeland of the [[Gnomes]] and federal capital of the [[Gnommo Republics]], Gnimscal is as island far to the northwest of the [[Dennar|Dellan]] coast. Frequent trade does occur between mainland [[Dennar]] and Gnimscal, and the largest known veins of [[Aetshard]] are found on the island. Gnimscal is the location of the [[University of Gnimscal]], the premier academic institution of [[Dennar]].

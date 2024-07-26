@@ -1,0 +1,1 @@
+The Coral Wall is a [[Saurian Shatterborn|Saurian]] port city on the southern side of the [[Narrows of Elfhome]], at the edge of [[Farum Rex]]. It's named for the massive reefs protecting it from storms that roll in from [[Elaram's Lament]] and the [[Shattered Coast]]. It was the location of first contact between [[Ayllath|Ayllathi]] explorers and the residents of [[Elandir]].

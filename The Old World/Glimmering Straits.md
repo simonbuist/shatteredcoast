@@ -1,1 +1,0 @@
-The Glimmering Straits are where the [[Silver Sea]] feeds into the larger [[Arietan Sea]]. At its thinnest, it is a few kilometres across, and is bordered on either side by rocky cliffs. Its name was given to it by sailors entering from the [[Arietan Sea]], astounded by the sight of the [[Silver Sea]].

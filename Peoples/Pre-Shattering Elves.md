@@ -1,0 +1,2 @@
+#species 
+Pre-shattering elves are the common ancestors of the four subspecies of [[Elves]]. They inhabited the continent of [[Elandir]] until the [[Shattering of Elandir|Shattering]] and their society is believed to have wielded incredible magical powers.

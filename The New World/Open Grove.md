@@ -1,0 +1,2 @@
+#city #Elandir 
+The Open Grove is the main centre of trade between the [[Arrusa|Arrusan]] and [[Ayllath|Ayllathi]] cities on the [[Shattered Coast]] in [[Elandir]] and the [[Saurian Shatterborn|Saurian]] cities of [[Farum Rex]]. Compared to the other [[Saurian Shatterborn|Saurian]] cities, there is a far higher proportion of [[Dennar|Dellan]] immigrants.

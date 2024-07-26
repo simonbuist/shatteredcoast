@@ -1,0 +1,1 @@
+Great Fairy is a title conferred upon the [[Fey]] leader of each of the [[Four Courts]]. Little is known about the role or how a Great Fairy comes to be. They are known to have incredible magical powers, far beyond any of the other [[Fey]], but it's unclear if the power comes from being a Great Fairy, or if the role of Great Fairy is given based on their power.

@@ -1,3 +1,4 @@
+#species
 One of the four subspecies of [[Elves]], the Shatterborn elves are a far less internally consistent group, associated by location rather than similarity. Shatterborn elves are the predominant residents of the [[Shattered Coast]] of [[Elandir]], descendants of survivors of the [[Shattering of Elandir]]. All known Shatterborn populations are significantly unique from the [[Old World Elves]] of [[Dennar]]. One commonality among most Shatterborn elves are there shorter lifespans as compared to [[Old World Elves]] and [[Glade Elves]], with the oldest met being no more than 200 years.
 
 Notable Shatterborn groups include:

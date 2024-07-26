@@ -1,0 +1,2 @@
+#species
+Triton Shatterborn are one of the most populous groups of [[Shatterborn Elves]], inhabiting many cities within the [[Shattered Coast]], especially within the [[Narrows of Elfhome]]. Tritons are aquatic elves, breathing both air and water.

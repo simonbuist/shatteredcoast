@@ -1,0 +1,2 @@
+#city #Elandir
+The origin point of [[Saurian Shatterborn|Saurian]] civilization, nestled in a piece of woods surrounded by cliffs at the eastern end of [[Farum Rex]]. Fair Glen is one of the largest known cities in [[Elandir]], and at its centre lies the Mother Tree, a religiously significant plant to the [[Saurian Shatterborn|Saurians]], associated with their survival of the [[Shattering of Elandir]].

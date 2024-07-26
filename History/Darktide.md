@@ -1,2 +1,2 @@
-The Darktide refers to the long series of wars fought earlier between the [[Deepfolk]] and the [[Crown]], and later between the [[Deepfolk]] and the inhabitants of [[Dennar]] (primarily the [[Alkainon Empire]] and the [[Daira]]).
+The Darktide refers to the long series of wars fought earlier between the [[Deepfolk]] and the [[Crown]], and later between the [[Deepfolk]] and the inhabitants of [[Dennar]] (primarily the [[Alkainon Empire]] and the [[Naira]]).
 The Darktide was initiated in 685 [[AS]] as relationships between the [[Dwarves]] and the recently discovered [[Deepfolk]] turned to war.

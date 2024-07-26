@@ -1,2 +1,0 @@
-#country #Dennar 
-Isle-Nasir is one of the most prosperous of the [[Elvish Free Kingdoms]], and has a trade-focussed economy, being near the [[Glimmering Straits]] and controlling passage throughout most of the [[Silver Sea]]. Due to its lack of land access to the rest of [[Dennar]], it is very rarely at war and as a result many less-secure nations keep much of their wealth in Nasir banks. Isle-Nasir is primarily inhabited by else, but due to its central trade location homes the most diverse cities within [[Dennar]], and possibly all of [[Gilith]].

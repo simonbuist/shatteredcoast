@@ -1,0 +1,2 @@
+#Feywild 
+The Lady of Deep Ice is an [[Archfey]] that has been the [[Great Fairies|Great Fairy]] of the [[Winter Court]] for 1500 years. She is rarely seen publicly, preferring to exert her will through through her underlings. After the [[Shattering of Elandir]], the Lady of Deep Ice was responsible for brokering peace between the [[Four Courts]], when war almost broke out due to the acceptance of [[Glade Elves]] into the [[Autumn Court]].

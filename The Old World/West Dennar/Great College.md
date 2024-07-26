@@ -1,0 +1,2 @@
+#city #Dennar 
+Aside from the [[University of Gnimscal]], the Great College is the largest academic institution in [[Dennar]]. It is located on [[Isle-Nasir]] in the [[Silver Sea]]. Many aspiring mages hope to attend it to develop their skills and achieve recognition. [[Dennar|Dellan]] mages whose skills have been recognized by the College are given cords of various colours, as proof of their abilities.

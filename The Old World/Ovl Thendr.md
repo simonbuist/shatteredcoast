@@ -1,2 +1,0 @@
-#country #Darovar 
-Ovl Thendr was one of the greatest [[Dwarves|Dwarven]] holds along the [[Doravar]], built into a large volcano and containing great mines of rubies, from which the inhabitants of Ovl Thendr, the Ruby Dwarves, got their name. Shortly before the [[Crown]] was broken, contact with Ovl Thendr was lost. It is unknown if the hold closed itself off to the world, or fell to the [[Darktide]]. Ovl Thendr is located at the southeast end of the [[Eldglade]], where one leg of the [[Drakesback]] branches southwest, separating [[Dennar]] from [[Marral]].

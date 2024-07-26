@@ -1,1 +1,1 @@
-information to come!
+The Shattering of Elandir was an apocalyptic event that took place 743 years ago in [[Elandir]]. Little is known about its nature and causes. It led to the disappearance of [[Pre-Shattering Elves]] and the existence of [[Shatterborn Elves]], [[Glade Elves]], [[Drow]], and [[Old World Elves]].

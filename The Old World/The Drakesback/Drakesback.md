@@ -1,0 +1,2 @@
+#region #Doravar
+The Drakesback is a massive mountain range spanning [[Dennar]] and [[Esden]]. It is harsh enough to make transit impossible, save through the great [[Dwarves|Dwarven]] gates build to allow access to the [[Doravar]]. In the past, it was populated by [[Dwarves]] originating from [[Aml Lodum]] who built the [[Doravar]] and formed the [[Crown]]. However, due to the [[Darktide]], almost all of the dwarves retreated to their holds or fled to the surrounding lands. At the present, the Drakesback is almost exclusively inhabited by [[Deepfolk]].
